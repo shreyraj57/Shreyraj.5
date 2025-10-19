@@ -1,8 +1,6 @@
 - 👋 Hi, I’m @shreyraj57
-- 👀 I’m interested in hacking 
-- 🌱 I’m currently learning hacking 
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me mail or number telegram id-shreyth5
+- 👀 I’m interested in finance
+- 📫 How to reach me mail:- shreyraJJ@gmail.com
 - 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
